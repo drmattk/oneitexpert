@@ -1,1 +1,0 @@
-One IT Expert logo updated from the user's supplied brand artwork.
